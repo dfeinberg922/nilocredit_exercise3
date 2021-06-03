@@ -1,2 +1,7 @@
 # nilocredit_exercise3
-**background of company**
+frnjkdn
+fknfknd
+fvklmnf
+---
+fnfnfv
+**abc**
